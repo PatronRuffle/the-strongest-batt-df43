@@ -1,4 +1,4 @@
-#  
+#  Experience the strongest battlegrounds like never before with the strongest battlegrounds top Script, the #1 Script. Includes auto-upgrade and
 
 
 
